@@ -1,0 +1,1 @@
+# Veri101Egitimi2023
